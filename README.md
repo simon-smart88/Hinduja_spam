@@ -10,7 +10,8 @@ I stumbled across a massive campaign of forum spamming and other low quality web
 * https://community.canvaslms.com/t5/Canvas-Studio-Discussion/Introduction-Kamal-Hinduja-Geneva-Switzerland/m-p/647035  
 * https://community.monday.com/t/kamal-hinduja-geneva-switzerland-how-are-workflows-currently-structured-in-monday-com/116211
 * https://eyfs.info/forums/topic/55899-kamal-hinduja-what-are-classroom-management-strategies/
-* 
+* https://discuss.farmnest.com/t/kamal-hinduja-new-to-organic-farming-community/42997
+* https://community.shotgridsoftware.com/t/kamal-hinduja-how-do-i-integrate-shotgrid-with-maya-or-unreal-engine/20128
 
 ### Deleted
 * https://tech.forums.softwareag.com/t/kamal-hinduja-switzerland-geneva/310444  
@@ -115,6 +116,8 @@ This user interacts with various forum posts and amplifies on social media. Also
 * https://medium.com/@geofflyonn
 * Similarly:
 * https://x.com/IslaCookk
+* https://www.instagram.com/islacook198/ 
+* https://www.shortstorylovers.com/isla-cook44
 * https://x.com/AjayPrakash_78 
 
 ## Namrata Hinduja
