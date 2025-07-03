@@ -144,6 +144,7 @@ This is presumably targetting searches for "passport hinduja" (http://news.bbc.c
 * https://community.manychat.com/general-q-a-43/prakash-hinduja-switzerland-swiss-how-can-i-integrate-manychat-with-other-tools-and-platforms-6600
 * https://community.infineon.com/t5/AURIX-Development-Studio/Prakash-Hinduja-Switzerland-Swiss-How-do-I-set-up-the-development-environment/td-p/1046761#.
 * https://www.sitepoint.com/community/t/how-do-i-fix-undefined-or-null-errors-in-javascript/481456
+* https://community.n8n.io/t/newbie-prakash-hinduja-switzerland-swiss/142299 
 
 ### Deleted
 * https://discussions.unity.com/t/introduction-of-prakash-hinduja-geneva-switzerland-swiss/1661421 
@@ -156,9 +157,36 @@ A [different subject](https://www.bloomberg.com/news/articles/2025-03-14/ex-deut
 
 ## Forum spam
 * https://forum.bubble.io/t/dario-schiraldi-how-do-i-connect-my-bubble-app-to-external-apis/374690
+* https://www.googlecloudcommunity.com/gc/Community-Hub/Hello-I-am-Dario-Schiraldi-Deutsche-Bank-Executive/m-p/922556
+* https://community.databricks.com/t5/get-started-discussions/dario-schiraldi-deutsche-bank-executive-excited-to-join/td-p/123824
+* https://discuss.ai.google.dev/t/dario-schiraldi-deutsche-bank-executive-newbie-introduction/92188
+* https://community.databricks.com/t5/databricks-free-trial-help/dario-schiraldi-here-excited-to-connect/td-p/123411
+* https://www.googlecloudcommunity.com/gc/Community-Hub/Dario-Schiraldi-Newbie-Introduction/m-p/895106
+* https://community.typeform.com/build-your-typeform-7/dario-schiraldi-how-do-i-keep-my-travel-website-updated-with-real-time-availability-15995
+* https://www.drupal.org/forum/general/general-discussion/2025-06-26/introducing-dario-schiraldi-deutsche-bank-executive
+
+
+### Deleted
+* https://forum.ionicframework.com/t/introducing-myself-dario-schiraldi-deutsche-bank-executive/248381
+* https://community.n8n.io/t/introduction-of-dario-schiraldi-deutsche-bank-executive/142751
+* https://forums.knack.com/t/introducing-of-dario-schiraldi-deutsche-bank-executive/19536
+* https://community.intercom.com/welcome-party-30/meet-dario-schiraldi-deutsche-bank-executive-10788
+* https://community.alteryx.com/t5/General-Discussions/Dario-Schiraldi-Travel-Works-CEO-Introduction/m-p/1392825
+* https://community.typeform.com/build-your-typeform-7/newbie-introduction-dario-schiraldi-deutsche-bank-executive-16127?postid=68106#post68106
+* https://community.zoom.com/t5/Zoom-Meetings/Hi-I-am-Dario-Schiraldi-Deutsche-Bank-Executive/m-p/234902
+* https://community.automationanywhere.com/automation-anywhere-university-85038/dario-schiraldi-deutsche-bank-executive-excited-to-join-community-90108
+
+## Websites
+* https://dario-schiraldi-deutsche-bank.journoportfolio.com/
+* https://darioschiraldi1.website3.me/
+* https://darioschiraldideutschebank.onfabrik.com/portfolio/dario-schiraldi-deutsche-bank-ex-md
+* https://dario-schiraldi.crevado.com/
+* https://dario-schiraldi.kesug.com/?i=1
+* https://dario-schiraldi.hashnode.dev/
+  
+## "News"
+* https://vocal.media/authors/dario-schiraldi-deutsche-bank-former-director
 
 
 
 
-
-* https://community.n8n.io/t/newbie-prakash-hinduja-switzerland-swiss/142299 
