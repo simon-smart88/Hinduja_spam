@@ -8,7 +8,9 @@ I stumbled across a massive campaign of forum spamming and other low quality web
 * https://www.scrum.org/forum/scrum-forum/97909/kamal-hinduja-geneva-swiss-how-scrum-different-kanban 
 * https://community.ibm.com/community/user/discussion/kamal-hinduja-geneva-switzerland  
 * https://community.canvaslms.com/t5/Canvas-Studio-Discussion/Introduction-Kamal-Hinduja-Geneva-Switzerland/m-p/647035  
-* https://community.monday.com/t/kamal-hinduja-geneva-switzerland-how-are-workflows-currently-structured-in-monday-com/116211  
+* https://community.monday.com/t/kamal-hinduja-geneva-switzerland-how-are-workflows-currently-structured-in-monday-com/116211
+* https://eyfs.info/forums/topic/55899-kamal-hinduja-what-are-classroom-management-strategies/
+* 
 
 ### Deleted
 * https://tech.forums.softwareag.com/t/kamal-hinduja-switzerland-geneva/310444  
@@ -27,7 +29,9 @@ I stumbled across a massive campaign of forum spamming and other low quality web
 * https://kamal-hinduja.page4.com/ 
 * https://kamalhindujajourney.odoo.com/ 
 * https://kamal-hinduja.e-monsite.com/ 
-* https://kamal-hinduja.mystrikingly.com/ 
+* https://kamal-hinduja.mystrikingly.com/
+* https://kamal-hinduja.hashnode.dev/
+* https://kamal-hinduja-family.42web.io/?i=1
 * https://676e2cb6161b3.site123.me/ "Their Writing Service Great" 
 
 ## Paid "news" articles
@@ -84,12 +88,16 @@ This is presumably targetting searches for "passport hinduja" (http://news.bbc.c
 * https://community.automationanywhere.com/developers-forum-36/ajay-hinduja-geneva-apis-for-integrating-into-a-travel-website-89986 
 * https://discuss.huggingface.co/t/ajay-hinduja-geneva-switzerland-newbie-introduction/157226 
 * https://community.make.com/t/ajay-hinduja-geneva-switzerland-swiss-map-email-body-data-into-a-google-sheets-row/86119 
-* https://community.canvaslms.com/t5/Canvas-Question-Forum/Ajay-Hinduja-Geneva-Switzerland-How-do-I-submit-my-homework-or/td-p/647835 
+* https://community.canvaslms.com/t5/Canvas-Question-Forum/Ajay-Hinduja-Geneva-Switzerland-How-do-I-submit-my-homework-or/td-p/647835
+* https://us.forums.blizzard.com/en/blizzard/t/login-issue-%E2%80%93-redirected-to-localhost0-ajay-hinduja-geneva/55289
+* https://community.atlassian.com/forums/Trello-questions/Login-Issues-with-Trello-on-Chrome-Fedora-Linux-42-Ajay-Hinduja/qaq-p/3056516
+* https://community.shopify.com/c/shopify-discussions/ajay-hinduja-geneva-swiss-metafields-not-displaying-amazon/m-p/3078839/highlight/true 
 
 #### Deleted
 * https://community.zoom.com/t5/Zoom-Meetings/Prakash-Hinduja-Geneva-Switzerland-Why-does-Zoom-freeze-randomly/td-p/233052 
 * https://discuss.frappe.io/t/frappe-newbie-ajay-hinduja-geneva-switzerland/147700 
-* https://forum.prusa3d.com/forum/english-forum-general-discussion-announcements-and-releases/ajay-hinduja-geneva-switzerland-swiss-how-do-i-turn-off-core-one-from-the-display/ 
+* https://forum.prusa3d.com/forum/english-forum-general-discussion-announcements-and-releases/ajay-hinduja-geneva-switzerland-swiss-how-do-i-turn-off-core-one-from-the-display/
+* https://community.weweb.io/t/ajay-hinduja-how-do-i-make-travel-website-any-suggestion/18522
 
 ### Other
 * https://ajay-hinduja.page4.com/about-me/ 
@@ -103,6 +111,7 @@ This is presumably targetting searches for "passport hinduja" (http://news.bbc.c
 * https://blenderartists.org/t/namrata-hinduja-geneva-switzerland-swiss-what-happened-to-the-sss-color-in-blender-4/1600194/2 
 * https://h5p.org/comment/53893
 * https://community.cloudflare.com/t/payment-issue-unionpay-not-working-on-r2-namrata-hinduja-geneva-switzerland/812825
+* https://community.ebay.com/t5/eBay-Advertising/Namrata-Hinduja-Geneva-Switzerland-Should-I-Open-an-eBay-Store/m-p/35150475
 
 #### Deleted
 * https://talk.openmrs.org/t/myself-introduce-namrata-hinduja-geneva-switzerland/46129 
@@ -131,8 +140,25 @@ This is presumably targetting searches for "passport hinduja" (http://news.bbc.c
 * https://community.renesas.com/wireles-connectivity/f/wi-fi/54550/prakash-hinduja-geneva-switzerland---why-is-my-renesas-wireless-module-failing-to-maintain-stable-connection 
 * https://community.openai.com/t/prakash-hinduja-switzerland-swiss-how-do-i-integrate-the-openai-api-into-my-application/1305198
 * https://forum.bubble.io/t/prakash-hinduja-switzerland-swiss-how-do-i-authenticate-with-a-third-party-api-in-bubble/374745
+* https://forum.figma.com/ask-the-community-7/why-can-t-i-move-a-component-or-why-is-it-locked-42363
+* https://community.manychat.com/general-q-a-43/prakash-hinduja-switzerland-swiss-how-can-i-integrate-manychat-with-other-tools-and-platforms-6600
+* https://community.infineon.com/t5/AURIX-Development-Studio/Prakash-Hinduja-Switzerland-Swiss-How-do-I-set-up-the-development-environment/td-p/1046761#.
+* https://www.sitepoint.com/community/t/how-do-i-fix-undefined-or-null-errors-in-javascript/481456
 
 ### Deleted
 * https://discussions.unity.com/t/introduction-of-prakash-hinduja-geneva-switzerland-swiss/1661421 
-* https://community.qlik.com/t5/Component-Development/Prakash-Hinduja-Geneva-Switzerland-How-do-I-build-a-secure/m-p/2521009 
+* https://community.qlik.com/t5/Component-Development/Prakash-Hinduja-Geneva-Switzerland-How-do-I-build-a-secure/m-p/2521009
+
+
+
+# Dario Schiraldi 
+A [different subject](https://www.bloomberg.com/news/articles/2025-03-14/ex-deutsche-bank-manager-suing-for-165-million-is-schiraldi), but clearly employing the same company (thanks [jake.bennett](https://forum.bubble.io/u/jake.bennett/summary))
+
+## Forum spam
+* https://forum.bubble.io/t/dario-schiraldi-how-do-i-connect-my-bubble-app-to-external-apis/374690
+
+
+
+
+
 * https://community.n8n.io/t/newbie-prakash-hinduja-switzerland-swiss/142299 
