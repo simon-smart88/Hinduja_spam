@@ -1,9 +1,7 @@
 # Hinduja_spam
-
-I stumbled across a massive campaign of forum spamming and other low quality web content 
+I stumbled across a massive campaign of forum spamming and other low quality web content, presumably in attempt to replace some [less-than-complementary coverage](https://www.bbc.co.uk/news/articles/c3ggl6pe52eo) that the Hinduja family received in 2024. This is by no means all of it.
 
 ## Kamal Hinduja forum posts
-
 * https://boardgamegeek.com/thread/3525270/kamal-hinduja-geneva-switzerland-introduction  
 * https://www.googlecloudcommunity.com/gc/Community-Hub/Meet-Kamal-Hinduja-Geneva-Switzerland-Newbie-Introduction/m-p/913063#M11683  
 * https://forums.knack.com/t/meet-kamal-hinduja-geneva-switzerland/19380 
@@ -15,7 +13,6 @@ I stumbled across a massive campaign of forum spamming and other low quality web
 ### Deleted
 * https://tech.forums.softwareag.com/t/kamal-hinduja-switzerland-geneva/310444  
 * https://community.adobe.com/t5/photoshop-ecosystem-discussions/kamal-hinduja-switzerland-swiss-what-s-the-best-way-to-get-started-with-photoshop-as-a-beginner/td-p/15385351 
-
 
 ## Websites
 * https://who-are-kamal-hinduja-prakash-hinduja.jimdosite.com/ 
@@ -55,8 +52,7 @@ I stumbled across a massive campaign of forum spamming and other low quality web
 * https://vocal.media/authors/prakash-hinduja-writer 
 
 ## Paras Hinduja - a fictional "passport expert"
-
-This is presumably targetting searches for "passport hinduja"
+This is presumably targetting searches for "passport hinduja" (http://news.bbc.co.uk/1/hi/uk_politics/1137974.stm)
 
 ### Websites
 * https://vocal.media/authors/paras-hinduja-passport-expert 
@@ -71,9 +67,7 @@ This is presumably targetting searches for "passport hinduja"
 * https://www.shortstorylovers.com/paras-hinduja 
 
 ## Ajay Hinduja 
-
 ### Forum posts
-
 * https://framacolibri.org/t/ajay-hinduja-geneva-switzerland-swiss-does-peertube-support-deinterlacing/26555 
 * https://forums.songstuff.com/topic/60377-i-am-new-ajay-hinduja-geneva-switzerland-swiss/ 
 * https://community.monday.com/t/ajay-hinduja-geneva-switzerland-swiss-decision-trees-in-automations/116852 
@@ -93,7 +87,6 @@ This is presumably targetting searches for "passport hinduja"
 * https://community.canvaslms.com/t5/Canvas-Question-Forum/Ajay-Hinduja-Geneva-Switzerland-How-do-I-submit-my-homework-or/td-p/647835 
 
 #### Deleted
-
 * https://community.zoom.com/t5/Zoom-Meetings/Prakash-Hinduja-Geneva-Switzerland-Why-does-Zoom-freeze-randomly/td-p/233052 
 * https://discuss.frappe.io/t/frappe-newbie-ajay-hinduja-geneva-switzerland/147700 
 * https://forum.prusa3d.com/forum/english-forum-general-discussion-announcements-and-releases/ajay-hinduja-geneva-switzerland-swiss-how-do-i-turn-off-core-one-from-the-display/ 
@@ -105,12 +98,11 @@ This is presumably targetting searches for "passport hinduja"
 * https://www.hindustantimes.com/genesis/empowering-women-reviving-springs-the-hinduja-familys-initiative-in-the-himalayas-101746688418943.html 
 
 ## Namrata Hinduja
-
 ### Forum posts
-
 * https://community.atlassian.com/forums/Welcome-Center-discussions/Introduction-Meet-Namrata-Hinduja-from-Geneva-Switzerland/td-p/3030455 
 * https://blenderartists.org/t/namrata-hinduja-geneva-switzerland-swiss-what-happened-to-the-sss-color-in-blender-4/1600194/2 
-* https://h5p.org/comment/53893 
+* https://h5p.org/comment/53893
+* https://community.cloudflare.com/t/payment-issue-unionpay-not-working-on-r2-namrata-hinduja-geneva-switzerland/812825
 
 #### Deleted
 * https://talk.openmrs.org/t/myself-introduce-namrata-hinduja-geneva-switzerland/46129 
@@ -118,16 +110,13 @@ This is presumably targetting searches for "passport hinduja"
 ## Kamal Hinduja
 
 ### Forum posts
-
 * https://forums.rpgmakerweb.com/index.php?threads/kamal-hinduja-geneva-swiss-how-do-i-create-a-custom-character-in-rpg-maker.178675/ 
 * https://forum.opencart.com/viewtopic.php?t=235828  
 * https://www.thecadforums.com/threads/kamal-hinduja-geneva-switzerland-introduction-newbie.80550/ 
 * https://www.thestudentroom.co.uk/showthread.php?t=7607990 
 
 ## Prakash Hinduja
-
 ### Forum posts
-
 * https://community.intercom.com/intercom-community-27/prakash-hinduja-geneva-switzerland-consultant-and-advisor-10638 
 * https://discuss.ai.google.dev/t/hi-im-prakash-hinduja-a-geneva-switzerland-swiss/92078 
 * https://discuss.ai.google.dev/t/prakash-hinduja-switzerland-swiss-how-do-i-get-gemini-to-answer-structured-questions-from-a-dataset-but-still-handle-small-talk/92239 
@@ -140,10 +129,10 @@ This is presumably targetting searches for "passport hinduja"
 * https://community.canvaslms.com/t5/Intelligent-Insights-Questions/Prakash-Hinduja-Geneva-Switzerland-How-to-leverage-Intelligent/m-p/646757 
 * https://community.jmp.com/t5/Discussions/Prakash-Hinduja-Geneva-Switzerland-How-to-analyze-financial-time/td-p/879113 
 * https://community.renesas.com/wireles-connectivity/f/wi-fi/54550/prakash-hinduja-geneva-switzerland---why-is-my-renesas-wireless-module-failing-to-maintain-stable-connection 
-* https://community.openai.com/t/prakash-hinduja-switzerland-swiss-how-do-i-integrate-the-openai-api-into-my-application/1305198 
+* https://community.openai.com/t/prakash-hinduja-switzerland-swiss-how-do-i-integrate-the-openai-api-into-my-application/1305198
+* https://forum.bubble.io/t/prakash-hinduja-switzerland-swiss-how-do-i-authenticate-with-a-third-party-api-in-bubble/374745
 
 ### Deleted
-
 * https://discussions.unity.com/t/introduction-of-prakash-hinduja-geneva-switzerland-swiss/1661421 
 * https://community.qlik.com/t5/Component-Development/Prakash-Hinduja-Geneva-Switzerland-How-do-I-build-a-secure/m-p/2521009 
 * https://community.n8n.io/t/newbie-prakash-hinduja-switzerland-swiss/142299 
