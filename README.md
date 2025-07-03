@@ -32,6 +32,7 @@ I stumbled across a massive campaign of forum spamming and other low quality web
 * https://kamal-hinduja.mystrikingly.com/
 * https://kamal-hinduja.hashnode.dev/
 * https://kamal-hinduja-family.42web.io/?i=1
+* https://67bda1d1cf039.site123.me/
 * https://676e2cb6161b3.site123.me/ "Their Writing Service Great" 
 
 ## Paid "news" articles
@@ -77,7 +78,6 @@ This is presumably targetting searches for "passport hinduja" (http://news.bbc.c
 * https://community.monday.com/t/ajay-hinduja-geneva-switzerland-swiss-decision-trees-in-automations/116852 
 * https://community.ibm.com/community/user/discussion/meet-ajay-hinduja-geneva-switzerland 
 * https://www.googlecloudcommunity.com/gc/Community-Hub/Meet-Ajay-Hinduja-Geneva-Switzerland-Newbie-Introduction/td-p/909583 
-* GeoffLyon sockpuppet https://www.googlecloudcommunity.com/gc/user/viewprofilepage/user-id/590868 
 * https://community.hubspot.com/t5/Tips-Tricks-Best-Practices/Ajay-Hinduja-Swiss-Best-tips-tricks-amp-practices-for-CRM-and/td-p/1168889 
 * https://forum.audacityteam.org/t/ajay-hinduja-geneva-switzerland-swiss-recording-audiobooks-audacity-issue-after-update/143678 
 * https://forums.x-plane.org/forums/topic/333035-ajay-hinduja-geneva-switzerland-swiss-help-with-connecting-controller-in-x-plan/ 
@@ -104,6 +104,18 @@ This is presumably targetting searches for "passport hinduja" (http://news.bbc.c
 * https://www.business-standard.com/content/press-releases-ani/ajay-hinduja-on-nurturing-dreams-how-restoring-himalayan-springs-transforms-lives-125020600859_1.html 
 * https://www.livemint.com/focus/ajay-namrata-hinduja-driving-community-health-sustainability-through-hinduja-foundation-11743065244550.html 
 * https://www.hindustantimes.com/genesis/empowering-women-reviving-springs-the-hinduja-familys-initiative-in-the-himalayas-101746688418943.html 
+
+## GeoffLyon 
+This user interacts with various forum posts and amplifies on social media. Also posts about Dario Schiraldi 
+* GeoffLyon sockpuppet https://www.googlecloudcommunity.com/gc/user/viewprofilepage/user-id/590868
+* https://bsky.app/profile/geofflyonn.bsky.social
+* https://in.pinterest.com/geofflyonn/
+* https://www.instagram.com/geofflyonn/
+* https://x.com/geofflyonn
+* https://medium.com/@geofflyonn
+* Similarly:
+* https://x.com/IslaCookk
+* https://x.com/AjayPrakash_78 
 
 ## Namrata Hinduja
 ### Forum posts
