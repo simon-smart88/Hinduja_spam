@@ -203,13 +203,27 @@ A [different subject](https://www.bloomberg.com/news/articles/2025-03-14/ex-deut
 * https://vocal.media/authors/dario-schiraldi-deutsche-bank-former-director
 
 # Emmanuel Katto
-
 Looks like another client of the same operation trying to suppress [content like this](https://www.occrp.org/en/project/suisse-secrets/ugandan-arms-dealers-credit-suisse-account-stayed-open-for-years-after-helicopter-scandal)
 
 * https://www.thecadforums.com/threads/introduction-%E2%80%93-emmanuel-katto-from-dubai-mechanical-engineering-enthusiast.80508/
 * https://forum.philosophynow.org/viewtopic.php?t=42268
 * https://forums.profounddecisions.co.uk/t/emmanuel-katto-dubai-need-help-with-travel-to-my-first-lrp-event/10226
 * https://vocal.media/authors/phillip-james
+* https://vocal.media/authors/olivia-cox-0m4e40ieh
+* http://www.juvitor.com/-oliviacox
+* https://www.shortstorylovers.com/Oliviacox
+* https://medium.com/@coxolivia
+* https://www.quora.com/profile/Olivia-Cox-205
+* https://issuu.com/jamesarah
 * https://who-is-emmanuel-katto.webflow.io/
+
+# Jozef Behr
+Looks like another. [Negative news](https://www.occrp.org/en/investigation/how-a-zimbabwe-tycoon-made-a-fortune-from-a-trafigura-partnership-and-spiralling-national-debt)
+
+* https://medium.com/@jozefbehr (following Olivia Cox from above).
+* https://all-about-zimbabwe.yolasite.com/
+* https://forums.musicplayer.com/topic/183750-jozef-behr-learn-to-guitar-playing/
+* https://www.pinterest.com/thejozefbehr/ (links to Katto articles)
+* https://www.artistforum.com/threads/jozef-behr-life-is-all-about-the-music.60854/ 
 
 
