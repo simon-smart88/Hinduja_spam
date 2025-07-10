@@ -224,6 +224,8 @@ Looks like another. [Negative news](https://www.occrp.org/en/investigation/how-a
 * https://all-about-zimbabwe.yolasite.com/
 * https://forums.musicplayer.com/topic/183750-jozef-behr-learn-to-guitar-playing/
 * https://www.pinterest.com/thejozefbehr/ (links to Katto articles)
-* https://www.artistforum.com/threads/jozef-behr-life-is-all-about-the-music.60854/ 
+* https://www.artistforum.com/threads/jozef-behr-life-is-all-about-the-music.60854/
+* https://www.youtube.com/@stevesmith7689
+* https://www.deviantart.com/jozefcliffordbehr/art/Jozef-Behr-Stage-Of-Green-942746345 
 
 
