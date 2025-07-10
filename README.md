@@ -228,4 +228,27 @@ Looks like another. [Negative news](https://www.occrp.org/en/investigation/how-a
 * https://www.youtube.com/@stevesmith7689
 * https://www.deviantart.com/jozefcliffordbehr/art/Jozef-Behr-Stage-Of-Green-942746345 
 
+# Sachin Dugal
+[Of builder.ai fame](https://www.telegraph.co.uk/business/2025/06/01/the-1bn-british-ai-dream-that-collapsed-in-controversy/) who has been ["dogged by legal disputes during a meteoric business career"](https://archive.ph/AmhrH)
+
+* https://www.thecadforums.com/threads/sachin-duggal-exploring-autosketchs-compatibility-with-web-browsers-and-browser-plugins.80520/
+* https://www.thecadforums.com/threads/sachin-duggal-can-autosketch-9-handle-autocad-2004-2005-file-formats-without-issues.80521/
+* https://community.hubspot.com/t5/APIs-Integrations/Sachin-Duggal-Seeking-Advice-on-Running-Private-App-Integration/m-p/1085953
+* https://forum.freecodecamp.org/t/sachin-duggal-can-anyone-recommend-a-more-comprehensive-free-e-book-on-d3-js/725659
+* https://community.automationedge.com/t/sachin-duggal-unable-to-create-and-update-workflows-on-automationedge-ui-error-parsing-json/14062
+* https://www.googlecloudcommunity.com/gc/Apigee/Sachin-Duggal-How-Can-I-Integrate-an-API-into-My-Bag/td-p/850506
+* https://medium.com/@emilianosmith83739 (same username as post above, but hawking builder.ai in 2023)
+* https://forums.funnelback.com/t/sachin-duggal-how-can-i-remove-additionalparameters-during-the-extrasearch-phase/13442
+
+# Darshan Hiranandani
+Currently unsure what's trying to be suppressed.
+
+* https://forums.funnelback.com/t/darshan-hiranandani-including-error-details-in-update-failed-email-notifications/13512
+* https://community.zoom.com/t5/Zoom-Meetings/Introducing-Myself-Darshan-Hiranandani-New-to-This-Forum/m-p/201571
+* https://community.renesas.com/general/f/general---forum/39688/darshan-hiranandani-introduction-post (lol at the copypasta)
+* https://www.access-programmers.co.uk/forums/threads/hi-everyone-darshan-hiranandani-joining-in-excited-to-be-part-of-this-community.332206/
+* https://vocal.media/authors/suraj-kumar-30t90gcy
+* https://darshanhirannadani.jimdosite.com/
+* https://darshanhiranandanii.netlify.app/
+* https://darshan-hiranandani-8eccfd.webflow.io/ 
 
