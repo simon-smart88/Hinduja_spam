@@ -250,5 +250,27 @@ Currently unsure what's trying to be suppressed.
 * https://vocal.media/authors/suraj-kumar-30t90gcy
 * https://darshanhirannadani.jimdosite.com/
 * https://darshanhiranandanii.netlify.app/
-* https://darshan-hiranandani-8eccfd.webflow.io/ 
+* https://darshan-hiranandani-8eccfd.webflow.io/
+
+# Julio Herrera Velutini
+[A billionaire poltical donor](https://archive.ph/Z4WXk)
+
+* https://www.access-programmers.co.uk/forums/threads/hiii-mates-julio-herrera-from-via-dei-velutini-excited-to-connect-and-learn.332175/
+* https://forum.f-droid.org/t/heya-from-italy-julio-herrera/22652/2
+* https://community.monday.com/t/julio-herrera-resolve-my-query-on-monday-com-crm/93483
+* https://www.electriciansforums.net/threads/julio-herrera-query-on-cctv-system-integration.213127/
+* https://forums.meteor.com/t/short-newbie-intro-julio-herrera-from-via-dei-vellutini/62512 
+
+# Manav Gangwani
+[A fashion designer](https://www.hindustantimes.com/fashion-and-trends/designer-manav-gangwani-who-styled-lady-gaga-and-justin-bieber-in-legal-soup/story-XgBx720SFRPuOiDxZAc2KP.html)
+
+* https://www.graphicdesignforum.com/t/manav-gangwani-lets-get-connected-creative-people/29929
+* https://community.monday.com/t/professional-profile-manav-gangwani-bangalore-facing-query/79619
+* https://www.nordenforums.com/threads/manav-gangwani-welcome-to-the-norden-community-newbie.1323/
+* https://forum.figma.com/ask-the-community-7/manav-gangwani-features-does-figma-offer-to-enhance-collaborative-design-workflows-4609
+* https://maker.pro/forums/threads/self-introduction-manav-gangwani-happy-to-get-connected.300591/
+* https://discuss.huggingface.co/t/manav-gangwani-lets-harness-technology-to-enhance-our-societies/94590
+* https://www.tripadvisor.co.uk/ShowTopic-g293860-i511-k14800207-Manav_Gangwani_Need_Guidance_Best_Place_to_Travel_in_July-India.html
+* https://forum.ironbutt.org/index.php?threads/manav-gangwani-what-documentation-is-required-for-an-iron-butt-ride.6896/
+
 
