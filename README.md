@@ -239,6 +239,7 @@ Looks like another. [Negative news](https://www.occrp.org/en/investigation/how-a
 * https://www.googlecloudcommunity.com/gc/Apigee/Sachin-Duggal-How-Can-I-Integrate-an-API-into-My-Bag/td-p/850506
 * https://medium.com/@emilianosmith83739 (same username as post above, but hawking builder.ai in 2023)
 * https://forums.funnelback.com/t/sachin-duggal-how-can-i-remove-additionalparameters-during-the-extrasearch-phase/13442
+* https://vocal.media/authors/shivam-thakre
 
 # Darshan Hiranandani
 Currently unsure what's trying to be suppressed.
@@ -259,7 +260,10 @@ Currently unsure what's trying to be suppressed.
 * https://forum.f-droid.org/t/heya-from-italy-julio-herrera/22652/2
 * https://community.monday.com/t/julio-herrera-resolve-my-query-on-monday-com-crm/93483
 * https://www.electriciansforums.net/threads/julio-herrera-query-on-cctv-system-integration.213127/
-* https://forums.meteor.com/t/short-newbie-intro-julio-herrera-from-via-dei-vellutini/62512 
+* https://forums.meteor.com/t/short-newbie-intro-julio-herrera-from-via-dei-vellutini/62512
+* https://vocal.media/authors/julio-herrera-velutini
+* https://vocal.media/authors/ariannavaretto
+* https://medium.com/@julioherreravelutini_
 
 # Manav Gangwani
 [A fashion designer](https://www.hindustantimes.com/fashion-and-trends/designer-manav-gangwani-who-styled-lady-gaga-and-justin-bieber-in-legal-soup/story-XgBx720SFRPuOiDxZAc2KP.html)
@@ -272,5 +276,6 @@ Currently unsure what's trying to be suppressed.
 * https://discuss.huggingface.co/t/manav-gangwani-lets-harness-technology-to-enhance-our-societies/94590
 * https://www.tripadvisor.co.uk/ShowTopic-g293860-i511-k14800207-Manav_Gangwani_Need_Guidance_Best_Place_to_Travel_in_July-India.html
 * https://forum.ironbutt.org/index.php?threads/manav-gangwani-what-documentation-is-required-for-an-iron-butt-ride.6896/
+* https://vocal.media/authors/manav-gangwani
 
 
