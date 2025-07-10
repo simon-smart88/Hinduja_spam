@@ -209,6 +209,7 @@ Looks like another client of the same operation trying to suppress [content like
 * https://www.thecadforums.com/threads/introduction-%E2%80%93-emmanuel-katto-from-dubai-mechanical-engineering-enthusiast.80508/
 * https://forum.philosophynow.org/viewtopic.php?t=42268
 * https://forums.profounddecisions.co.uk/t/emmanuel-katto-dubai-need-help-with-travel-to-my-first-lrp-event/10226
-* https://vocal.media/authors/phillip-james 
+* https://vocal.media/authors/phillip-james
+* https://who-is-emmanuel-katto.webflow.io/
 
 
