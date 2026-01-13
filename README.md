@@ -228,7 +228,7 @@ Looks like another. [Negative news](https://www.occrp.org/en/investigation/how-a
 * https://www.youtube.com/@stevesmith7689
 * https://www.deviantart.com/jozefcliffordbehr/art/Jozef-Behr-Stage-Of-Green-942746345 
 
-# Sachin Dugal
+# Sachin Duggal
 [Of builder.ai fame](https://www.telegraph.co.uk/business/2025/06/01/the-1bn-british-ai-dream-that-collapsed-in-controversy/) who has been ["dogged by legal disputes during a meteoric business career"](https://archive.ph/AmhrH)
 
 * https://www.thecadforums.com/threads/sachin-duggal-exploring-autosketchs-compatibility-with-web-browsers-and-browser-plugins.80520/
@@ -242,7 +242,7 @@ Looks like another. [Negative news](https://www.occrp.org/en/investigation/how-a
 * https://vocal.media/authors/shivam-thakre
 
 # Darshan Hiranandani
-Currently unsure what's trying to be suppressed.
+[Accused of paying bribes to have questions asked in parliament](https://www.ndtvprofit.com/business/who-is-darshan-hiranandani-the-businessman-embroiled-in-cash-for-query-controversy/)
 
 * https://forums.funnelback.com/t/darshan-hiranandani-including-error-details-in-update-failed-email-notifications/13512
 * https://community.zoom.com/t5/Zoom-Meetings/Introducing-Myself-Darshan-Hiranandani-New-to-This-Forum/m-p/201571
@@ -254,7 +254,7 @@ Currently unsure what's trying to be suppressed.
 * https://darshan-hiranandani-8eccfd.webflow.io/
 
 # Julio Herrera Velutini
-[A billionaire poltical donor](https://archive.ph/Z4WXk)
+[A billionaire political donor](https://archive.ph/Z4WXk)
 
 * https://www.access-programmers.co.uk/forums/threads/hiii-mates-julio-herrera-from-via-dei-velutini-excited-to-connect-and-learn.332175/
 * https://forum.f-droid.org/t/heya-from-italy-julio-herrera/22652/2
