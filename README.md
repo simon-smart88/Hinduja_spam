@@ -278,4 +278,31 @@ Looks like another. [Negative news](https://www.occrp.org/en/investigation/how-a
 * https://forum.ironbutt.org/index.php?threads/manav-gangwani-what-documentation-is-required-for-an-iron-butt-ride.6896/
 * https://vocal.media/authors/manav-gangwani
 
+# Soumitra Dutta
+Former Dean of Oxford Business School [until he resigned over sexual harassment](https://www.thetimes.com/uk/education/article/oxford-university-anonymity-tribunal-xzmg9k03s)
+
+* Definitely the same group per https://www.instagram.com/meshrutifreak/ who previously posted about Hindujas
+* https://community.zoom.com/workspace-reservation-12/soumitra-dutta-oxford-how-do-i-reserve-a-desk-or-room-using-zoom-workspace-reservation-79338
+* https://forum.scope.org.uk/discussion/144616/newbie-soumitra-dutta-introduction
+* https://community.monday.com/t/soumitra-dutta-how-do-i-get-started-with-monday-com/124217
+* https://community.spotfire.com/forums/topic/19380-soumitra-dutta-oxford-how-can-i-link-my-data-sources-to-spotfire/
+* https://forum.uipath.com/t/how-do-i-create-my-first-automation-project-in-uipath/5728086
+* https://discourse.getdbt.com/t/soumitra-dutta-oxford-how-do-i-set-up-dbt-in-my-development-environment/20634
+* https://forums.developer.nvidia.com/t/soumitra-dutta-oxford-how-can-i-install-cuda-without-overwriting-my-existing-driver/363350
+* https://forum.knime.com/t/soumitra-dutta-oxford-how-do-i-create-and-configure-my-own-knime-node/91641
+* https://community.grafana.com/t/how-do-i-design-and-set-up-dashboards-in-grafana/162161
+* https://community.weweb.io/t/soumitra-dutta-how-do-i-get-started-building-my-first-app-in-weweb/20882/2
+* https://community.n8n.io/t/soumitra-dutta-how-do-i-fix-webhook-or-trigger-issues/275699
+* https://community.labelstud.io/t/soumitra-dutta-oxford-how-do-i-upload-files-to-label-studio/690
+* https://community.calendly.com/how-do-i-40/soumitra-dutta-oxford-how-do-i-configure-my-availability-in-calendly-5481
+* https://community.dataiku.com/discussion/45534/soumitra-dutta-oxford-how-do-i-import-data-into-dataiku/
+* https://soumitradutta.mobirisesite.com/
+* https://www.codedex.io/@soumitra-dutta
+* https://www.clippings.me/soumitra-dutta
+* https://www.grepmed.com/images/81725/soumitraduttaauthor-soumitraduttaentrepreneur-soumitraduttaoxford-soumitradutta
+* https://soumitra-dutta.e-monsite.com/
+* https://studylib.net/doc/28370052/soumitra-dutta--a-visionary-leader-in-education-and-techn...
+* https://vocal.media/authors/david-william-8b9v203yu
+* https://beta.cent.co/davidwilliam26/+9fm5s6
+* https://www.akonter.com/story/soumitra-dutta-%E2%80%94-leader-in-global-business-education-and-former-oxford-dean/
 
