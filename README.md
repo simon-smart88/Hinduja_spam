@@ -297,6 +297,7 @@ Former Dean of Oxford Business School [until he resigned over sexual harassment]
 * https://community.calendly.com/how-do-i-40/soumitra-dutta-oxford-how-do-i-configure-my-availability-in-calendly-5481
 * https://community.dataiku.com/discussion/45534/soumitra-dutta-oxford-how-do-i-import-data-into-dataiku/
 * https://soumitradutta.mobirisesite.com/
+* https://edutechupdates.mystrikingly.com/
 * https://www.codedex.io/@soumitra-dutta
 * https://www.clippings.me/soumitra-dutta
 * https://www.grepmed.com/images/81725/soumitraduttaauthor-soumitraduttaentrepreneur-soumitraduttaoxford-soumitradutta
@@ -305,4 +306,34 @@ Former Dean of Oxford Business School [until he resigned over sexual harassment]
 * https://vocal.media/authors/david-william-8b9v203yu
 * https://beta.cent.co/davidwilliam26/+9fm5s6
 * https://www.akonter.com/story/soumitra-dutta-%E2%80%94-leader-in-global-business-education-and-former-oxford-dean/
+
+
+# Sanjeev Mansotra
+An Indian millionaire. This one is older, not sure what it's trying to bury yet maybe [https://www.maltatoday.com.mt/news/national/129395/st_elmo_laguna_hotel_unesco_stopped_170000_kickback_alleged](this)
+
+* https://www.tripadvisor.co.uk/ShowTopic-g1-i12357-k14530704-o10-Sanjeev_Mansotra_Best_place_to_travel_solo-Solo_Travel.html
+* https://forums.unrealengine.com/t/sanjeev-mansotra-how-can-i-start-my-career-in-game-developer/1601910
+* https://www.talkclassical.com/threads/sanjeev-mansotra-introduction-to-classical-musical-community.88015/
+* https://community.openai.com/t/sanjeev-mansotra-the-webs-most-searched-questions-on-chat-gpt/627434
+* https://forums.sketchup.com/t/sanjeev-mansotra-core-educator-newbie-facing-query-in-sketchup/294572
+* https://forum.golangbridge.org/t/sanjeev-mansotra-help-to-resolve-my-github-query/36480
+* https://community.monday.com/t/sanjeev-mansotra-which-programming-languages-should-i-learn-to-develop-native-apps/74210
+* https://forum.ionicframework.com/t/sanjeev-mansotra-is-ionic-a-javascript-framework/238937
+* https://forum.dynare.org/t/sanjeev-mansotra-new-to-dynare-help-to-interpret-results/25174
+* https://www.graphicdesignforum.com/t/sanjeev-mansotra-newbie-to-community-designing/30730
+* https://forums.meteor.com/t/query-on-meteor-reactive-data-layer-sanjeev-mansotra/62299
+* https://forum.ironbutt.org/index.php?threads/sanjeev-mansotra-newbie-passionate-about-motorcycling-want-to-be-a-part-of-ride-event.6642/
+* https://vocal.media/authors/tom-henry
+* https://medium.com/@tomhenry1212
+* https://tomhenry1212.wixsite.com/sanjeev-mansotra
+* https://vocal.media/authors/amanda-mae
+* https://sanjeev-mansotraa.webflow.io/
+* https://sites.google.com/view/sanjeevmansotra/sanjeev-mansotra-blog
+* https://sanjeev-mansotra.jimdosite.com/
+* https://yaept-spraetch-physaucy.yolasite.com/
+* https://sanjeevmansotrablog.wordpress.com/
+* https://sanjeev-mansotra.weebly.com/
+* https://sanjeevmansotra.mystrikingly.com/blog/from-side-hustle-to-successful-entrepreneur-how-sanjeev-mansotra-turned-his
+* https://sanjeevmansotra.gumroad.com/l/Challenges-in-Agribusiness-to-FemaleFarmer-SanjeevMansotra
+
 
