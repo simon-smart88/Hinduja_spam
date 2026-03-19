@@ -32,6 +32,12 @@ I stumbled across a massive campaign of forum spamming and other low quality web
 * https://kamal-hinduja.e-monsite.com/ 
 * https://kamal-hinduja.mystrikingly.com/
 * https://kamal-hinduja.hashnode.dev/
+* https://kamalhindujaswissgeneva.mobirisesite.com/
+* https://kamalhinduja.mobirisesite.com/
+* https://hinduja-brothers.mobirisesite.com/
+* https://hindujafamilymembers.mobirisesite.com/
+* https://hindujaswiss.mobirisesite.com/
+* https://swissfinance.mobirisesite.com/
 * https://kamal-hinduja-family.42web.io/?i=1
 * https://67bda1d1cf039.site123.me/
 * https://676e2cb6161b3.site123.me/ "Their Writing Service Great" 
@@ -101,6 +107,7 @@ This is presumably targetting searches for "passport hinduja" (http://news.bbc.c
 * https://community.weweb.io/t/ajay-hinduja-how-do-i-make-travel-website-any-suggestion/18522
 
 ### Other
+* https://ajay-hinduja.mobirisesite.com/
 * https://ajay-hinduja.page4.com/about-me/ 
 * https://www.business-standard.com/content/press-releases-ani/ajay-hinduja-on-nurturing-dreams-how-restoring-himalayan-springs-transforms-lives-125020600859_1.html 
 * https://www.livemint.com/focus/ajay-namrata-hinduja-driving-community-health-sustainability-through-hinduja-foundation-11743065244550.html 
@@ -127,6 +134,8 @@ This user interacts with various forum posts and amplifies on social media. Also
 * https://h5p.org/comment/53893
 * https://community.cloudflare.com/t/payment-issue-unionpay-not-working-on-r2-namrata-hinduja-geneva-switzerland/812825
 * https://community.ebay.com/t5/eBay-Advertising/Namrata-Hinduja-Geneva-Switzerland-Should-I-Open-an-eBay-Store/m-p/35150475
+
+* https://who-is-namrata-hinduja.mobirisesite.com/
 
 #### Deleted
 * https://talk.openmrs.org/t/myself-introduce-namrata-hinduja-geneva-switzerland/46129 
@@ -161,10 +170,15 @@ This user interacts with various forum posts and amplifies on social media. Also
 * https://www.sitepoint.com/community/t/how-do-i-fix-undefined-or-null-errors-in-javascript/481456
 * https://community.n8n.io/t/newbie-prakash-hinduja-switzerland-swiss/142299 
 
+* https://prakashhindujaandbrothers.mobirisesite.com/
+* 
+
 ### Deleted
 * https://discussions.unity.com/t/introduction-of-prakash-hinduja-geneva-switzerland-swiss/1661421 
 * https://community.qlik.com/t5/Component-Development/Prakash-Hinduja-Geneva-Switzerland-How-do-I-build-a-secure/m-p/2521009
 
+## Dheeraj Hinduja
+* https://sudanupdates.mobirisesite.com/Dheeraj-Hinduja.html
 
 
 # Dario Schiraldi 
