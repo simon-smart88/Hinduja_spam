@@ -296,6 +296,7 @@ Looks like another. [Negative news](https://www.occrp.org/en/investigation/how-a
 Former Dean of Oxford Business School [until he resigned over sexual harassment](https://www.thetimes.com/uk/education/article/oxford-university-anonymity-tribunal-xzmg9k03s)
 
 * Definitely the same group per https://www.instagram.com/meshrutifreak/ who previously posted about Hindujas
+* https://x.com/meshrutifreak
 * https://community.zoom.com/workspace-reservation-12/soumitra-dutta-oxford-how-do-i-reserve-a-desk-or-room-using-zoom-workspace-reservation-79338
 * https://forum.scope.org.uk/discussion/144616/newbie-soumitra-dutta-introduction
 * https://community.monday.com/t/soumitra-dutta-how-do-i-get-started-with-monday-com/124217
@@ -311,6 +312,7 @@ Former Dean of Oxford Business School [until he resigned over sexual harassment]
 * https://community.calendly.com/how-do-i-40/soumitra-dutta-oxford-how-do-i-configure-my-availability-in-calendly-5481
 * https://community.dataiku.com/discussion/45534/soumitra-dutta-oxford-how-do-i-import-data-into-dataiku/
 * https://soumitradutta.mobirisesite.com/
+* https://soumitra-dutta.page4.com/
 * https://edutechupdates.mystrikingly.com/
 * https://www.codedex.io/@soumitra-dutta
 * https://www.clippings.me/soumitra-dutta
@@ -319,7 +321,12 @@ Former Dean of Oxford Business School [until he resigned over sexual harassment]
 * https://studylib.net/doc/28370052/soumitra-dutta--a-visionary-leader-in-education-and-techn...
 * https://vocal.media/authors/david-william-8b9v203yu
 * https://beta.cent.co/davidwilliam26/+9fm5s6
+* https://soundcloud.com/davidwilliam26/who-is-soumitra-dutta
+* https://prfree.org/@davidwilliam26/soumitra-dutta-is-a-renowned-academic-and-prominent-voice-on-artificial-intelligence-u9rbokfb3guq
+* https://issuu.com/davidwilliam26/docs/the_journey_of_soumitra_dutta_oxford_dean
+* https://imgur.com/gallery/introducing-soumitra-dutta-former-dean-of-sa-d-business-school-university-of-oxford-SXFhl3e
 * https://www.akonter.com/story/soumitra-dutta-%E2%80%94-leader-in-global-business-education-and-former-oxford-dean/
+* https://www.shortstorylovers.com/soumitra-dutta-oxford
 
 
 # Sanjeev Mansotra
