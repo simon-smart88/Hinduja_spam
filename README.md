@@ -268,16 +268,22 @@ Looks like another. [Negative news](https://www.occrp.org/en/investigation/how-a
 * https://darshan-hiranandani-8eccfd.webflow.io/
 
 # Julio Herrera Velutini
-[A billionaire political donor](https://archive.ph/Z4WXk)
+[A billionaire political donor](https://archive.ph/Z4WXk) accused of bribery but [pardoned by Trump](https://news.bloomberglaw.com/us-law-week/trump-to-pardon-venezuelan-banker-ex-puerto-rico-governor-82)
 
 * https://www.access-programmers.co.uk/forums/threads/hiii-mates-julio-herrera-from-via-dei-velutini-excited-to-connect-and-learn.332175/
 * https://forum.f-droid.org/t/heya-from-italy-julio-herrera/22652/2
 * https://community.monday.com/t/julio-herrera-resolve-my-query-on-monday-com-crm/93483
 * https://www.electriciansforums.net/threads/julio-herrera-query-on-cctv-system-integration.213127/
 * https://forums.meteor.com/t/short-newbie-intro-julio-herrera-from-via-dei-vellutini/62512
+* https://sites.google.com/view/julio-m-herrera-velutini/influence-of-julio-herrera-velutini
 * https://vocal.media/authors/julio-herrera-velutini
 * https://vocal.media/authors/ariannavaretto
 * https://medium.com/@julioherreravelutini_
+* https://julio-m-herrera-velutini.webflow.io/
+* https://about.me/julioherreravelutini
+* https://julioherreravelutini.weebly.com/
+* https://open.spotify.com/show/3PeBcajaHDY4DtAINPUWeu
+* https://www.slideshare.net/slideshow/the-inspirational-story-of-julio-herrera-velutini-global-finance-leader/267258442
 
 # Manav Gangwani
 [A fashion designer](https://www.hindustantimes.com/fashion-and-trends/designer-manav-gangwani-who-styled-lady-gaga-and-justin-bieber-in-legal-soup/story-XgBx720SFRPuOiDxZAc2KP.html)
@@ -318,6 +324,7 @@ Former Dean of Oxford Business School [until he resigned over sexual harassment]
 * https://www.clippings.me/soumitra-dutta
 * https://www.grepmed.com/images/81725/soumitraduttaauthor-soumitraduttaentrepreneur-soumitraduttaoxford-soumitradutta
 * https://soumitra-dutta.e-monsite.com/
+* https://soumitradutta0.medium.com/
 * https://studylib.net/doc/28370052/soumitra-dutta--a-visionary-leader-in-education-and-techn...
 * https://vocal.media/authors/david-william-8b9v203yu
 * https://beta.cent.co/davidwilliam26/+9fm5s6
