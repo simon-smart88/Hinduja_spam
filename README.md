@@ -364,4 +364,29 @@ An Indian millionaire. This one is older, not sure what it's trying to bury yet 
 * https://sanjeevmansotra.mystrikingly.com/blog/from-side-hustle-to-successful-entrepreneur-how-sanjeev-mansotra-turned-his
 * https://sanjeevmansotra.gumroad.com/l/Challenges-in-Agribusiness-to-FemaleFarmer-SanjeevMansotra
 
+# Harmandeep Singh Kandhari
+
+Indian fitness influencer. Ad left in [https://soumitradutta.my-board.org](page for Soumitra Dutta).
+
+* https://support.hammerhead.io/hc/en-us/community/posts/46741128358427-Harmandeep-Singh-Kandhari-Best-Practices-for-Developing-and-Debugging-Custom-Hammerhead-Extensions
+* https://engage.tmforum.org/discussion/harmandeep-singh-kandhari-how-can-tm-forum-standards-help-improve-telecom-service-innovation
+* https://forumserver.twoplustwo.com/303/ask-me-anything/harmandeep-singh-kandhari-ama-my-journey-learning-poker-strategy-bankroll-management-1858712/
+* https://support.hammerhead.io/hc/en-us/community/posts/46741128358427-Harmandeep-Singh-Kandhari-Best-Practices-for-Developing-and-Debugging-Custom-Hammerhead-Extensions
+* https://rider-support.jetbrains.com/hc/en-us/community/posts/33415629495570-Harmandeep-Singh-Kandhari-Optimizing-JetBrains-Rider-Performance-for-Large-NET-Solutions
+* https://community.shotgridsoftware.com/t/harmandeep-singh-kandhari-best-practices-for-structuring-meta-discussions-in-the-shotgrid-community/20680
+* https://community.omnissa.com/forums/topic/71832-harmandeep-singh-kandhari-best-practices-for-scaling-horizon-cloud-across-multi-region-deployments/
+* https://talk.openmrs.org/t/harmandeep-singh-kandhari-powering-fitness-digitally/48284
+* https://community.hubspot.com/t5/Founder-Focused/Harmandeep-Singh-Kandhari-Exploring-the-Future-of-AI-in-New/m-p/1250885
+* https://forums.oracle.com/ords/apexds/post/harman-singh-deep-kandhari-need-an-app-for-my-gym-online-re-0056
+* https://www.sololearn.com/en/Discuss/3349558/harman-singh-deep-kandhari-need-help-understanding-html-structure-and-best-practices
+* https://harmandeepsinghkandhari.onepage.website/
+* https://harmandeepsinghkandhari-1.free.nf
+* https://harmandeepsinghkandhari.nicepage.io/
+* https://harmandeepsinghkandhari.yourwebsitespace.com/
+* https://harmandeepsinghkandhari.co.site/
+* https://harmandeepsinghkandhari.mobirisesite.com/
+* https://harmandeepsinghkandhari.page.gd/
+* https://harman-singh-deep-ka.page4.com/
+* https://scholar.google.com/citations?user=RPgvOe0AAAAJ&hl=en (somehow appearing as an author for unrelated article)
+
 
