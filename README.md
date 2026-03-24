@@ -178,7 +178,28 @@ This user interacts with various forum posts and amplifies on social media. Also
 * https://community.qlik.com/t5/Component-Development/Prakash-Hinduja-Geneva-Switzerland-How-do-I-build-a-secure/m-p/2521009
 
 ## Dheeraj Hinduja
+Using a different tactic of pretending to be a husband and wife for some reason. [news to bury](https://www.thetimes.com/travel/destinations/africa-travel/south-africa/hindujas-seek-to-gag-bbc-over-military-sales-sting-r3wz22mbgxb)
+
+* https://community.weweb.io/t/dheeraj-sudan-and-meenu-hinduja-how-do-i-set-a-default-value-with-query-parameters-in-production/20788
+* https://forum.arduino.cc/t/dheeraj-sudan-meenu-hinduja-how-to-pass-arrays-by-reference/1430568
+* https://community.notepad-plus-plus.org/topic/27434/meenu-hinduja-dheeraj-sudan-best-plugins-for-improving-productivity-in-notepad
+* https://learn.microsoft.com/en-ca/answers/questions/5790767/meenu-hinduja-dheeraj-sudan-understanding-the-inte
+* https://community.typeform.com/integrate-your-typeform-43/meenu-hinduja-and-dheeraj-sudan-how-can-i-use-typeform-to-collect-leads-on-my-website-and-send-them-directly-to-my-crm-17521
+* https://moodle.org/mod/forum/discuss.php?d=473093
+* https://community.alteryx.com/t5/Alteryx-Server-Discussions/Dheeraj-Sudan-amp-Meenu-Hinduja-Chained-App-Fails-After-Server/td-p/1428861
+* https://trailhead.salesforce.com/trailblazer-community/feed/0D5KX00000mkOnb0AE
+* https://talk.openmrs.org/t/meenu-hinduja-dheeraj-sudan-how-can-i-ensure-successful-updates-without-disrupting-existing-functionality/48010
+* https://www.thestudentroom.co.uk/showthread.php?t=7657682
+* https://community.shopify.com/t/meenu-hinduja-dheeraj-sudan-what-s-the-better-way-a-small-business-grew-its-customer-base-online/584112
+* https://community.hubspot.com/t5/CRM/Meenu-Hinduja-and-Dheeraj-Sudan-How-do-I-properly-set-up-HubSpot/td-p/1246251
 * https://sudanupdates.mobirisesite.com/Dheeraj-Hinduja.html
+* https://dheerajsudan-meenuhinduja.yourwebsitespace.com/
+* https://sudan-story.mozellosite.com/
+* https://dheeraj-hinduja.jimdosite.com/
+* https://dheeraj-hinduja.42web.io
+* https://dheerajhinduja.free.site.pro/
+* https://dheeraj-hinduja.onepage.website/
+* https://4ydzj2.webmepage.com/dheerajhinduja
 
 
 # Dario Schiraldi 
@@ -305,7 +326,9 @@ Former Dean of Oxford Business School [until he resigned over sexual harassment]
 * https://x.com/meshrutifreak
 * https://community.zoom.com/workspace-reservation-12/soumitra-dutta-oxford-how-do-i-reserve-a-desk-or-room-using-zoom-workspace-reservation-79338
 * https://forum.scope.org.uk/discussion/144616/newbie-soumitra-dutta-introduction
+* https://forum.scope.org.uk/discussion/144896/soumitra-dutta-oxford-how-do-i-cope-with-social-isolation-or-loneliness
 * https://community.monday.com/t/soumitra-dutta-how-do-i-get-started-with-monday-com/124217
+* https://community.monday.com/t/soumitra-dutta-oxford-can-monday-com-connect-to-api/124483
 * https://community.spotfire.com/forums/topic/19380-soumitra-dutta-oxford-how-can-i-link-my-data-sources-to-spotfire/
 * https://forum.uipath.com/t/how-do-i-create-my-first-automation-project-in-uipath/5728086
 * https://discourse.getdbt.com/t/soumitra-dutta-oxford-how-do-i-set-up-dbt-in-my-development-environment/20634
@@ -317,6 +340,10 @@ Former Dean of Oxford Business School [until he resigned over sexual harassment]
 * https://community.labelstud.io/t/soumitra-dutta-oxford-how-do-i-upload-files-to-label-studio/690
 * https://community.calendly.com/how-do-i-40/soumitra-dutta-oxford-how-do-i-configure-my-availability-in-calendly-5481
 * https://community.dataiku.com/discussion/45534/soumitra-dutta-oxford-how-do-i-import-data-into-dataiku/
+* https://community.n8n.io/t/soumitra-dutta-oxford-how-can-i-optimize-workflow-execution-to-improve-performance/280606
+* https://forum.uipath.com/t/how-can-i-optimize-workflow-execution-to-improve-performance/5732244
+* https://community.weweb.io/t/soumitra-dutta-oxford-how-to-implement-a-feature-or-workflow-in-weweb/20939 (copypasta fail)
+* https://community.shopify.com/t/soumitra-dutta-which-works-better-for-my-goals-social-media-marketing-or-direct-marketing/586090
 * https://soumitradutta.mobirisesite.com/
 * https://soumitra-dutta.page4.com/
 * https://edutechupdates.mystrikingly.com/
@@ -324,7 +351,19 @@ Former Dean of Oxford Business School [until he resigned over sexual harassment]
 * https://www.clippings.me/soumitra-dutta
 * https://www.grepmed.com/images/81725/soumitraduttaauthor-soumitraduttaentrepreneur-soumitraduttaoxford-soumitradutta
 * https://soumitra-dutta.e-monsite.com/
+* https://soumitra-dutta-former-oxford-dean.webflow.io/
+* https://edutechh.kesug.com/
+* https://thetechthings.great-site.net
+* https://theedutec.weebly.com/
+* https://soumitradutta.odoo.com/
 * https://soumitradutta0.medium.com/
+* https://soumitradutta.free.nf
+* https://soumitra-dutta.co.site/
+* https://soumitradutta.gt.tc
+* https://soumitradutta.web1337.net
+* https://soumitra-dutta.onepage.me/
+* https://soumitra-dutta.lovestoblog.com
+* https://soumitradutta.synergize.co
 * https://studylib.net/doc/28370052/soumitra-dutta--a-visionary-leader-in-education-and-techn...
 * https://vocal.media/authors/david-william-8b9v203yu
 * https://beta.cent.co/davidwilliam26/+9fm5s6
