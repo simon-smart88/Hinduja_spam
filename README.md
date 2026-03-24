@@ -344,17 +344,29 @@ Former Dean of Oxford Business School [until he resigned over sexual harassment]
 * https://forum.uipath.com/t/how-can-i-optimize-workflow-execution-to-improve-performance/5732244
 * https://community.weweb.io/t/soumitra-dutta-oxford-how-to-implement-a-feature-or-workflow-in-weweb/20939 (copypasta fail)
 * https://community.shopify.com/t/soumitra-dutta-which-works-better-for-my-goals-social-media-marketing-or-direct-marketing/586090
+* https://community.dataiku.com/discussion/45534/soumitra-dutta-oxford-how-do-i-import-data-into-dataiku
+* https://community.neo4j.com/t/soumitra-dutta-oxford-how-do-i-fix-with-is-required-between-merge-and-match-in-cypher/76765
+* https://forums.developer.nvidia.com/t/soumitra-dutta-oxford-i-m-encountering-memory-issues-with-framwork/364484
+* https://www.drupal.org/forum/support/installing-drupal/2026-03-12/soumitra-dutta-how-do-i-install-drupal-on-my-server
+* https://www.drupal.org/forum/support/composer/2026-03-24/soumitra-dutta-oxford-how-can-i-install-drupal-modules-using-composer
+* https://community.xano.com/ask-the-community/post/soumitra-dutta-oxford-how-do-i-use-xano-to-handle-authentication-and-user-nDbXxEHFskUFOiS
+* https://discourse.julialang.org/t/how-can-i-make-my-julia-code-run-faster/136268
+* https://forum.charlestonfishing.com/t/soumitra-dutta-oxford-how-do-you-set-up-for-surf-fishing-in-charleston/100309
+* https://discourse.haproxy.org/t/soumitra-dutta-oxford-how-do-i-fix-this-configuration-issue-in-haproxy/12135/4
+* https://boardgamegeek.com/thread/3682279/hi-im-soumitra-dutta-oxford-based-entrepreneur-and
 * https://soumitradutta.mobirisesite.com/
 * https://soumitra-dutta.page4.com/
-* https://edutechupdates.mystrikingly.com/
 * https://www.codedex.io/@soumitra-dutta
 * https://www.clippings.me/soumitra-dutta
 * https://www.grepmed.com/images/81725/soumitraduttaauthor-soumitraduttaentrepreneur-soumitraduttaoxford-soumitradutta
 * https://soumitra-dutta.e-monsite.com/
 * https://soumitra-dutta-former-oxford-dean.webflow.io/
+* https://edutechupdates.mystrikingly.com/
 * https://edutechh.kesug.com/
 * https://thetechthings.great-site.net
 * https://theedutec.weebly.com/
+* https://theedutec.wordpress.com/
+* https://technologyyupdates.wixsite.com/soumitradutta
 * https://soumitradutta.odoo.com/
 * https://soumitradutta0.medium.com/
 * https://soumitradutta.free.nf
@@ -362,9 +374,11 @@ Former Dean of Oxford Business School [until he resigned over sexual harassment]
 * https://soumitradutta.gt.tc
 * https://soumitradutta.web1337.net
 * https://soumitra-dutta.onepage.me/
+* https://soumitradutta.onepage.website/
 * https://soumitra-dutta.lovestoblog.com
 * https://soumitradutta.synergize.co
 * https://studylib.net/doc/28370052/soumitra-dutta--a-visionary-leader-in-education-and-techn...
+* https://studylib.net/doc/28224625/who-is-soumitra-dutta-%3F-
 * https://vocal.media/authors/david-william-8b9v203yu
 * https://beta.cent.co/davidwilliam26/+9fm5s6
 * https://soundcloud.com/davidwilliam26/who-is-soumitra-dutta
@@ -373,6 +387,12 @@ Former Dean of Oxford Business School [until he resigned over sexual harassment]
 * https://imgur.com/gallery/introducing-soumitra-dutta-former-dean-of-sa-d-business-school-university-of-oxford-SXFhl3e
 * https://www.akonter.com/story/soumitra-dutta-%E2%80%94-leader-in-global-business-education-and-former-oxford-dean/
 * https://www.shortstorylovers.com/soumitra-dutta-oxford
+* https://www.yumpu.com/en/document/view/70915903/soumitra-dutta-entrepreneur-author-oxford-former-dean
+* https://www.yoomark.com/user/3780537/pin?board=1578759
+* https://hackmd.io/@Williamthomass89
+* https://hayer.app/jamesanderson
+* https://potswap.club/posts/213210
+
 
 
 # Sanjeev Mansotra
