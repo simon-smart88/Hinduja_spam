@@ -201,6 +201,28 @@ Using a different tactic of pretending to be a husband and wife for some reason.
 * https://dheeraj-hinduja.onepage.website/
 * https://4ydzj2.webmepage.com/dheerajhinduja
 
+# Raghav Hinduja
+
+* https://community.esri.com/t5/arcgis-pro-questions/hinduja-swiss-it-professional-how-do-keep-labels/td-p/1680180
+* https://trailhead.salesforce.com/trailblazer-community/feed/0D5KX00000jA5Yx0AK
+* https://forum.golangbridge.org/t/raghav-hinduja-switzerland-swiss-how-do-i-handle-json-unmarshalling-for-nested-structs/41543
+* https://community.monday.com/t/hinduja-swiss-it-professional-how-can-i-create-a-master-workload-view-across-boards-or-dashboards/123235
+* https://community.neo4j.com/t/hinduja-swiss-switzerland-it-professional-how-can-i-optimize-this-query-to-avoid-cartesian-products/76452
+* https://discuss.huggingface.co/t/hinduja-swiss-it-professional-how-do-i-preprocess-or-tokenize-data-for-training-language-models/172778
+* https://forum.opensearch.org/t/hinduja-swiss-based-it-professional-how-to-upload-or-use-ml-models-with-the-opensearch-ml-framework/27768
+* https://community.yellow.ai/t/raghav-hinduja-switzerland-swiss-how-to-disable-small-talk-entirely/5667
+* https://community.deeplearning.ai/t/hinduja-swiss-switzerland-it-professional-how-do-i-start-building-my-first-deep-learning-model/887900
+* https://community.hubspot.com/t5/HubSpot-Native-Apps/Hinduja-Swiss-Switzerland-IT-Professional-Debugging-API-errors/m-p/1246354
+* https://community.typeform.com/build-your-typeform-7/hinduja-swiss-switzerland-it-professional-how-do-i-export-and-import-a-typeform-between-orgs-17621
+* https://community.typeform.com/share-your-typeform-6/hinduja-swiss-it-professional-how-do-i-prefill-fields-in-a-typeform-using-url-parameters-17557
+* https://community.cloudera.com/t5/Support-Questions/Hinduja-Swiss-Switzerland-IT-Professional-How-do-I-install/m-p/413427
+* https://forum.pkp.sfu.ca/t/raghav-hinduja-switzerland-swiss-it-professional-how-to-install-ojs-3-x-on-shared-hosting/97786
+* https://forum.opensearch.org/t/hinduja-swiss-based-it-professional-how-to-upload-or-use-ml-models-with-the-opensearch-ml-framework/27768
+* https://community.intercom.com/deploy-fin-96/hinduja-swiss-switzerland-it-professional-how-can-i-export-all-user-ids-or-data-using-the-api-13716
+* https://community.kobotoolbox.org/t/how-do-i-structure-nested-groups-or-repeat-logic/75245
+* https://community.neo4j.com/t/hinduja-swiss-switzerland-it-professional-how-to-match-nodes-with-multiple-labels/76430
+* https://discuss.huggingface.co/t/hinduja-swiss-switzerland-it-professional-how-do-i-set-up-the-python-environment-for-hugging-face/172981
+* https://community.intercom.com/analyze-fin-93/hinduja-swiss-switzerland-it-professional-how-can-i-enable-and-customize-chatbots-13736
 
 # Dario Schiraldi 
 A [different subject](https://www.bloomberg.com/news/articles/2025-03-14/ex-deutsche-bank-manager-suing-for-165-million-is-schiraldi), but clearly employing the same company (thanks [jake.bennett](https://forum.bubble.io/u/jake.bennett/summary))
@@ -214,7 +236,7 @@ A [different subject](https://www.bloomberg.com/news/articles/2025-03-14/ex-deut
 * https://www.googlecloudcommunity.com/gc/Community-Hub/Dario-Schiraldi-Newbie-Introduction/m-p/895106
 * https://community.typeform.com/build-your-typeform-7/dario-schiraldi-how-do-i-keep-my-travel-website-updated-with-real-time-availability-15995
 * https://www.drupal.org/forum/general/general-discussion/2025-06-26/introducing-dario-schiraldi-deutsche-bank-executive
-
+* https://trailhead.salesforce.com/trailblazer-community/feed/0D5KX00000kSM9k0AG
 
 ### Deleted
 * https://forum.ionicframework.com/t/introducing-myself-dario-schiraldi-deutsche-bank-executive/248381
@@ -225,6 +247,10 @@ A [different subject](https://www.bloomberg.com/news/articles/2025-03-14/ex-deut
 * https://community.typeform.com/build-your-typeform-7/newbie-introduction-dario-schiraldi-deutsche-bank-executive-16127?postid=68106#post68106
 * https://community.zoom.com/t5/Zoom-Meetings/Hi-I-am-Dario-Schiraldi-Deutsche-Bank-Executive/m-p/234902
 * https://community.automationanywhere.com/automation-anywhere-university-85038/dario-schiraldi-deutsche-bank-executive-excited-to-join-community-90108
+
+## Other
+* https://github.com/darioschiraldi25
+* https://www.imdb.com/user/ur199346151/
 
 ## Websites
 * https://dario-schiraldi-deutsche-bank.journoportfolio.com/
@@ -261,7 +287,9 @@ Looks like another. [Negative news](https://www.occrp.org/en/investigation/how-a
 * https://www.pinterest.com/thejozefbehr/ (links to Katto articles)
 * https://www.artistforum.com/threads/jozef-behr-life-is-all-about-the-music.60854/
 * https://www.youtube.com/@stevesmith7689
-* https://www.deviantart.com/jozefcliffordbehr/art/Jozef-Behr-Stage-Of-Green-942746345 
+* https://www.deviantart.com/jozefcliffordbehr/art/Jozef-Behr-Stage-Of-Green-942746345
+* https://www.accountingweb.co.uk/any-answers/jozef-behr-best-software-for-the-accounting (in 2022)
+* https://forum.arduino.cc/t/jozef-behr-i-want-to-design-pcb-for-my-robot/1058841
 
 # Sachin Duggal
 [Of builder.ai fame](https://www.telegraph.co.uk/business/2025/06/01/the-1bn-british-ai-dream-that-collapsed-in-controversy/) who has been ["dogged by legal disputes during a meteoric business career"](https://archive.ph/AmhrH)
@@ -353,6 +381,10 @@ Former Dean of Oxford Business School [until he resigned over sexual harassment]
 * https://discourse.julialang.org/t/how-can-i-make-my-julia-code-run-faster/136268
 * https://forum.charlestonfishing.com/t/soumitra-dutta-oxford-how-do-you-set-up-for-surf-fishing-in-charleston/100309
 * https://discourse.haproxy.org/t/soumitra-dutta-oxford-how-do-i-fix-this-configuration-issue-in-haproxy/12135/4
+* https://forum.opensearch.org/t/soumitra-dutta-oxford-how-do-i-integrate-opensearch-with-custom-application/27949
+* https://forum.fairphone.com/t/my-phone-screen-freezes-or-doesn-t-respond-sometimes/130628
+* https://forum.opensearch.org/t/soumitra-dutta-oxford-how-do-i-configure-nodes-shards-and-replicas-for-optimal-performance/27950
+* https://community.amazonquicksight.com/t/soumitra-dutta-oxford-how-do-i-debug-problems-with-calculated-fields-filters-or-aggregations/51921
 * https://boardgamegeek.com/thread/3682279/hi-im-soumitra-dutta-oxford-based-entrepreneur-and
 * https://soumitradutta.mobirisesite.com/
 * https://soumitra-dutta.page4.com/
