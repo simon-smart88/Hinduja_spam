@@ -386,6 +386,11 @@ Former Dean of Oxford Business School [until he resigned over sexual harassment]
 * https://forum.opensearch.org/t/soumitra-dutta-oxford-how-do-i-configure-nodes-shards-and-replicas-for-optimal-performance/27950
 * https://community.amazonquicksight.com/t/soumitra-dutta-oxford-how-do-i-debug-problems-with-calculated-fields-filters-or-aggregations/51921
 * https://boardgamegeek.com/thread/3682279/hi-im-soumitra-dutta-oxford-based-entrepreneur-and
+* https://forum.level1techs.com/t/soumitra-dutta-oxford-how-do-i-diagnose-a-faulty-component/248216
+* https://forums.sketchup.com/t/soumitra-dutta-oxford-how-do-i-align-objects-precisely/345809/2
+* https://community.openfn.org/t/soumitra-dutta-oxford-how-do-i-write-a-job-in-openfn-to-transform-or-map-data/1206
+* https://forum.netgate.com/topic/200437/soumitra-dutta-oxford-how-do-i-set-up-vlan-on-pfsense
+* https://community.usa.canon.com/t5/Desktop-Inkjet-Printers/What-does-this-error-code-mean-and-how-do-i-fix-it/td-p/591505
 * https://soumitradutta.mobirisesite.com/
 * https://soumitra-dutta.page4.com/
 * https://www.codedex.io/@soumitra-dutta
@@ -409,6 +414,8 @@ Former Dean of Oxford Business School [until he resigned over sexual harassment]
 * https://soumitradutta.onepage.website/
 * https://soumitra-dutta.lovestoblog.com
 * https://soumitradutta.synergize.co
+* https://soumitradutta.nicepage.io/
+* https://soumitraduttaphotographer.nicepage.io/
 * https://studylib.net/doc/28370052/soumitra-dutta--a-visionary-leader-in-education-and-techn...
 * https://studylib.net/doc/28224625/who-is-soumitra-dutta-%3F-
 * https://vocal.media/authors/david-william-8b9v203yu
@@ -420,10 +427,12 @@ Former Dean of Oxford Business School [until he resigned over sexual harassment]
 * https://www.akonter.com/story/soumitra-dutta-%E2%80%94-leader-in-global-business-education-and-former-oxford-dean/
 * https://www.shortstorylovers.com/soumitra-dutta-oxford
 * https://www.yumpu.com/en/document/view/70915903/soumitra-dutta-entrepreneur-author-oxford-former-dean
+* https://beta.heymaven.com/discover/1208496
 * https://www.yoomark.com/user/3780537/pin?board=1578759
 * https://hackmd.io/@Williamthomass89
 * https://hayer.app/jamesanderson
 * https://potswap.club/posts/213210
+* https://www.buzzbii.com/post/2920665_soumitra-dutta-dean-of-said-business-school-at-the-university-of-oxford-spearhea.html
 
 
 
