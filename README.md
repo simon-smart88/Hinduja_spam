@@ -352,6 +352,7 @@ Former Dean of Oxford Business School [until he resigned over sexual harassment]
 
 * Definitely the same group per https://www.instagram.com/meshrutifreak/ who previously posted about Hindujas
 * https://x.com/meshrutifreak
+* https://www.reddit.com/user/meshrutifreak/
 * https://community.zoom.com/workspace-reservation-12/soumitra-dutta-oxford-how-do-i-reserve-a-desk-or-room-using-zoom-workspace-reservation-79338
 * https://forum.scope.org.uk/discussion/144616/newbie-soumitra-dutta-introduction
 * https://forum.scope.org.uk/discussion/144896/soumitra-dutta-oxford-how-do-i-cope-with-social-isolation-or-loneliness
@@ -416,6 +417,17 @@ Former Dean of Oxford Business School [until he resigned over sexual harassment]
 * https://soumitradutta.synergize.co
 * https://soumitradutta.nicepage.io/
 * https://soumitraduttaphotographer.nicepage.io/
+* https://soumitra-dutta.onfabrik.com/
+* https://soumitra-dutta-oxford-dean.journoportfolio.com/
+* https://soumitradutta.wuaze.com/?i=1
+* https://soumitradutta.e-monsite.com/
+* https://soumitraduttaphotographer.weebly.com/
+* https://campsite.bio/soumitraduttaresignationtips
+* https://soumitraduttaphotographer.mystrikingly.com/
+* https://soumitraduttaphotographer.42web.io
+* https://soumitraduttaphotographer.great-site.net
+* https://soumitraduttaphotographer.free.site.pro/
+* https://soumitraduttaphotographer.my-board.org/?i=1
 * https://studylib.net/doc/28370052/soumitra-dutta--a-visionary-leader-in-education-and-techn...
 * https://studylib.net/doc/28224625/who-is-soumitra-dutta-%3F-
 * https://vocal.media/authors/david-william-8b9v203yu
@@ -433,8 +445,11 @@ Former Dean of Oxford Business School [until he resigned over sexual harassment]
 * https://hayer.app/jamesanderson
 * https://potswap.club/posts/213210
 * https://www.buzzbii.com/post/2920665_soumitra-dutta-dean-of-said-business-school-at-the-university-of-oxford-spearhea.html
-
-
+* https://www.geeksforgeeks.org/profile/soumitraduttaphotographer
+* https://leetcode.com/u/soumitraduttaphotographer/
+* https://github.com/soumitradutta1 (targetting resignation searches)
+* https://www.youtube.com/@toptipsxyz
+* https://www.slideshare.net/slideshow/why-april-and-may-are-resignation-season-understand-from-the-pov-of-soumitra-dutta/286749000
 
 # Sanjeev Mansotra
 An Indian millionaire. This one is older, not sure what it's trying to bury yet maybe [https://www.maltatoday.com.mt/news/national/129395/st_elmo_laguna_hotel_unesco_stopped_170000_kickback_alleged](this)
