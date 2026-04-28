@@ -1,6 +1,8 @@
 # Hinduja_spam
 I stumbled across a massive campaign of forum spamming and other low quality web content, presumably in attempt to replace some [less-than-complementary coverage](https://www.bbc.co.uk/news/articles/c3ggl6pe52eo) that the Hinduja family received in 2024. This is by no means all of it.
 
+[OMG](https://www.google.com/search?client=ubuntu-sn&channel=fs&q=hinduja+%22site.pro%22)
+
 ## Kamal Hinduja forum posts
 * https://boardgamegeek.com/thread/3525270/kamal-hinduja-geneva-switzerland-introduction  
 * https://www.googlecloudcommunity.com/gc/Community-Hub/Meet-Kamal-Hinduja-Geneva-Switzerland-Newbie-Introduction/m-p/913063#M11683  
